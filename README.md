@@ -5,6 +5,12 @@ VegaMovies- Free Movies And Web Series Download Site
 
 <a href="https://vegamovies.eu.com/">➤ Latest Website ✅</a>
 
+
+
+
+
+<img src="https://camo.githubusercontent.com/d23cdcba96011501a4ba8a5db21efd5189af8931ede8aad9928d29f7e9a89171/68747470733a2f2f626c6f676765722e676f6f676c6575736572636f6e74656e742e636f6d2f696d672f622f523239765a32786c2f415676587345697236626d4e306a6c48397039754d4144744b2d3532686d68416c2d6a646c79334169436270456a2d676534564646774131536c73594a55745f525176735946475761714473456d55416d56757161336b37774451484f553573495a346c6c66676d544e6546484b30753933534c312d7a5f6358554d6859474d524867716b506c6e6b65386555756a687538776f59524969306550702d704c2d594d31317738416d56336a6a556a6245796b3069355a666867567a4d4e754846306b342f733839372f53637265656e73686f742532302e706e67" alt="VegaMovies">
+
 <h2>About Vegamovies</h2>
 
 Vegamovies is an online streaming platform that provides access to a diverse selection of movies and TV shows. Users can explore various genres, including action, comedy, drama, romance, sci-fi, horror, and more. The platform's extensive library ensures there's something for everyone, from classic films to the latest blockbusters.
