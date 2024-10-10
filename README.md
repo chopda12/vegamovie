@@ -1,9 +1,9 @@
 # vegamovie Free Movie watch And Downloading site
 
-<a href="https://vegamovies.eu.com/">VegaMovie</a> is free movie download Website. vegamovies uplode latest hollywood, bollywood, south indian hindi dubbed, movie and webseries. vegamovies, vegamovies3, filmywap.
+<a href="https://vegamovies.us.com/">VegaMovie</a> is free movie download Website. vegamovies uplode latest hollywood, bollywood, south indian hindi dubbed, movie and webseries. vegamovies, vegamovies3, filmywap.
 VegaMovies- Free Movies And Web Series Download Site
 
-<a href="https://vegamovies.eu.com/">➤ Latest Website ✅</a>
+<a href="https://vegamovies.us.com/">➤ Latest Website ✅</a>
 
 
 
